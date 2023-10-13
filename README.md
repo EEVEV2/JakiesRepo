@@ -1,2 +1,2 @@
 # JakiesRepo
-yaifskcib coSC
+Lista zakupów czy kij wie co
